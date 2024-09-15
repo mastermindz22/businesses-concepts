@@ -1,1 +1,1 @@
-# businesses-concepts
+# business insights
